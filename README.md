@@ -1,4 +1,4 @@
-## Hi there 👋
+## fortis fortuna adiuvat🙌
 
 <!--
 **H00Doficial/H00Doficial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
